@@ -7,3 +7,4 @@ Gursimran kaur ECE branch
 #### After that our chief guest Mr Mahesh inder singh grewal ex cabinet minister of punjab and member of Nankana sahib trust society addresses us. He told us how this college is made by his nana ji Master Tara singh ji. I am very glad to know that the college that I joined was first in India which laid the foundation stone by president of India Dr. Rajendra Prasad. 
 #### After 1 hour break we went for our department visit where i explore various labs like microprocessor lab,computational lab etc. Then the finally ends with department visit. 
 # Day 2
+### 1 August 2025
