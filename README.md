@@ -8,4 +8,4 @@ Gursimran kaur ECE branch
 #### After 1 hour break we went for our department visit where i explore various labs like microprocessor lab,computational lab etc. Then the finally ends with department visit. 
 # Day 2
 ### 1 August 2025
-#### New day new lessons. So at 9:00 am I go to attend the lecture by Dr. Priya Darshani Mam on ' Universal Human Values 'where mam makes us realise that what actually our goal is so I
+#### New day new lessons. So at 9:00 am I go to attend the lecture by Dr. Priya Darshani Mam on ' Universal Human Values 'where mam makes us realise that what actually our goal is so I realized that my goal is not only to become a good engineer or get high valued job but to become happy and prosperous in life. She told that self understanding, good relationship and some physical facility make an ease to achieve it. I learn a life lesson in her lecture that '  If one door get closed then go for another
