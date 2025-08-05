@@ -1,5 +1,5 @@
 # Induction-programme
-##Gursimran kaur ECE branch
+Gursimran kaur ECE branch
 # Day 1
 ### 30 July 2025
 #### My first day at GNDEC starts with the blessing of God. We all went to college gurudwara sahib where we peacefully listen japji sahib path and shabad kirtan. I pray for my new beginning of college life. Then we got refreshment. At 9:30 am we go to auditorium where we got welcome kits. 
@@ -8,3 +8,4 @@
 #### After 1 hour break we went for our department visit where i explore various labs like microprocessor lab,computational lab etc. Then the finally ends with department visit. 
 # Day 2
 ### 1 August 2025
+#### New day new lessons. So at 9:00 am I go to attend the lecture by Dr. Priya Darshani Mam on ' Universal Human Values 'where mam makes us realise that what actually our goal is so I
