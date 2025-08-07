@@ -15,3 +15,4 @@ Gursimran kaur ECE branch
 ### 2 August 2025
 ####  my day started in the Auditorium with some basic instructions given by doctor Harpreet Kaur Grewal mam. then our seniors introduced us with the causmic and give us the information that all the event at the college are held by the causmic club members which would really fascinate me to join that club. After that we get to know about the Motor Sports . Our one of the senior explain that how the car works and also told us about the difference in the milliseconds while car racing which would really fascinate me. 
 ### Universal Human Values
+then our host invited Dr Priyadarshini mam which delivered of wonderful lecture on Universal human values the lesson learn that the body requires a physical facilities like food clothes but it is temporary the sold required the happiness which is internal which is basic
