@@ -10,7 +10,8 @@ Gursimran kaur ECE branch
 ### 1 August 2025
 #### New day new lessons. So at 9:00 am I go to attend the lecture by Dr. Priya Darshani Mam on ' Universal Human Values 'where mam makes us realise that what actually our goal is so I realized that my goal is not only to become a good engineer or get high valued job but to become happy and prosperous in life. She told that self understanding, good relationship and some physical facility make an ease to achieve it. I learn a life lesson in her lecture that '  If one door get closes another opens'. and always do the things which gives you happiness. 
 #### Then our host invited buddy 4 study team who told us about many scholarship which would really helpful for us financially. 
-#### At end Dr. Arvind Dhingra sir addressed us lecture on 'Personality Development'. He called 7 boys and 7 girls on stage for game due to lack of confidence I miss this opportunity but it was fun to watch them. And my day ends with maths and English proficiency test and I take so many lessons and new learning with me that day. 
+#### At end Dr. Arvind Dhingra sir addressed us lecture on 'Personality Development'. He called 7 boys and 7 girls on stage for game due to lack of confidence I miss this opportunity but it was fun to watch them. And my day ends with maths and English proficiency test and I take so many lessons and ew learning with me that day. 
 # Day-3
 ### 2 August 2025
-
+####  my day started in the Auditorium with some basic instructions given by doctor Harpreet Kaur Grewal mam. then our seniors introduced us with the causmic and give us the information that all the event at the college are held by the causmic club members which would really fascinate me to join that club. After that we get to know about the Motor Sports . Our one of the senior explain that how the car works and also told us about the difference in the milliseconds while car racing which would really fascinate me. 
+### Universal Human Values
