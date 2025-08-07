@@ -2,7 +2,8 @@
 Gursimran kaur ECE branch
 # Day 1
 ### 30 July 2025
-#### My first day at GNDEC starts with the blessing of God. We all went to college gurudwara sahib where we peacefully listen japji sahib path and shabad kirtan. I pray for my new beginning of college life. Then we got refreshment. At 9:30 am we go to auditorium where we got welcome kits. 
+#### My first day at GNDEC starts with the blessing of God.![1000232141](https://github.com/user-attachments/assets/95a64c12-e6e0-44ae-8d46-c6ed14d31565)
+ We all went to college gurudwara sahib where we peacefully listen japji sahib path and shabad kirtan. I pray for my new beginning of college life. Then we got refreshment. At 9:30 am we go to auditorium where we got welcome kits. 
 #### I sat at auditorium according to my branch. After 30 minutes, of waiting the host finally invited the first speaker Dr. Harpreet kaur grewal mam Head of Appplied science department who brings a joy and a lot of inspiration and happiness among us. she gave us lesson to get mentally, physically and spiritually fit. Then our principle Dr. Sehajpal Singh address us and explains us how this college plays an important role in our life and gave us a lesson to always get ready for new learning in your life. 
 #### After that our chief guest Mr Mahesh inder singh grewal ex cabinet minister of punjab and member of Nankana sahib trust society addresses us. He told us how this college is made by his nana ji Master Tara singh ji. I am very glad to know that the college that I joined was first in India which laid the foundation stone by president of India Dr. Rajendra Prasad. 
 #### After 1 hour break we went for our department visit where i explore various labs like microprocessor lab,computational lab etc. Then the finally ends with department visit. 
@@ -15,4 +16,5 @@ Gursimran kaur ECE branch
 ### 2 August 2025
 ####  my day started in the Auditorium with some basic instructions given by doctor Harpreet Kaur Grewal mam. then our seniors introduced us with the causmic and give us the information that all the event at the college are held by the causmic club members which would really fascinate me to join that club. After that we get to know about the Motor Sports . Our one of the senior explain that how the car works and also told us about the difference in the milliseconds while car racing which would really fascinate me. 
 ### Universal Human Values
-then our host invited Dr Priyadarshini mam which delivered of wonderful lecture on Universal human values the lesson learn that the body requires a physical facilities like food clothes but it is temporary the sold required the happiness which is internal which is basic
+#### Then our host invited Dr Priya darshini mam which delivered of wonderful lecture on ' Universal human values' the lesson learn that the body requires a physical facilities like food clothes but it is temporary our soul requires the happiness which is internal . I learned that the self and the body have the different types of needs so by misunderstanding these differences can leads to feeling of depression and exploitation. 
+
