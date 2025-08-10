@@ -40,3 +40,6 @@ Gursimran kaur ECE branch
 # Day 7
 ### 8 August 2025
 #### Finally the last day of induction program. At 11:00 am we reach to our classes for our P2P lecture where our seniors ask us about our interest and suggest us to join different communities according to our interest and share us some helpful tips for our studies. then we go to workshops according to our roll numbers and there are so many different workshop like foundry, fitting and machine etc. Our teacher gave us information about workshops and the job that we have to done in semester and then he asked us to visit workshop and explore new things. It was really a knowledgeable day. 
+# Keys Takeaway
+#### Holistic development:GNDEC emphasizes a balance between academic knowledge, technical skills, and personal growth, encouraging students to develop a well-rounded personality.
+#### 
