@@ -33,8 +33,8 @@ Gursimran kaur ECE branch
 # Day 6
 ### 7 August 2025
 #### At morning we have our physics lecture where mam give some basic information about Laser and also about practicals and after that we have lecture of maths where mam discussed about syllabus and about simple derivatives. 
-### Center for multi-faceated
-#### Then Dr. Lakhvir Singh Khana told us about centre for multi-faceated (CML). He gave us information about how cml works and how they research on different agendas and how they help student for organising unique functions. It was a wonderful lecture. 
+### Center for multi-faceted learning
+#### Then Dr. Lakhvir Singh Khana told us about center for multi-faceted learning (CML). He gave us information about how cml works and how they research on different agendas and how they help student for organising unique functions. It was a wonderful lecture. 
 ### National service scheme (NSS) 
 #### Then host invited Dr Jasvir singh grewal to introduce about NSS and also students of NSS recite shabad kirtan and it gives peace to mind.The NSS aims to engage students in community service, focusing on afforestation, AIDS awareness, blood donation camps, environmental cleanliness, and disaster management. Participation in NSS offers numerous benefits, including personality development, preferential treatment in admissions and employment, and opportunities to engage in national integration camps and adventure programs. Then they also play game with us which gave a big lesson to us that it is not easy to make someone happy rather people became angry easily. It was really a good day. 
 # Day 7
