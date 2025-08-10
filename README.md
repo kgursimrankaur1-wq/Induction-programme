@@ -43,4 +43,6 @@ Gursimran kaur ECE branch
 # Keys Takeaway
 #### Holistic development:GNDEC emphasizes a balance between academic knowledge, technical skills, and personal growth, encouraging students to develop a well-rounded personality.
 #### Continuous Learning: The program highlights the life lessons and staying updated with new technological advancement. 
+# Networking and Communication: This program tells the importance of networking as networking increase networking and also tells the importance of communication in both academic and professional field. 
+# Conclusion
 
