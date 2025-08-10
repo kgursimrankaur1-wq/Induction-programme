@@ -25,4 +25,7 @@ Gursimran kaur ECE branch
 ### 4 August 2025
 #### so I reached at the Auditorium for lecture by Dr Parminder Singh head of Student Welfare give us the college tour through his presentation. he told about the various clubs, committees and sports related programs organised by the college. He gave the brief on the central facilities like communities radio station ,dispensary, computer centres and also so many other areas. He gave us some important lessons that would really helpful for us that"There is a substitution of intelligence but there is no substitution of hard work".
 ### Fitness for Engineers
-#### Then our host invited Mr Manpreet Singh who delivered a lecture on fitness for engineers he explained how a good diet and exercise help us to keep healthy. 
+#### Then our host invited Mr Manpreet Singh who delivered a lecture on fitness for engineers he explained how a good diet and exercise help us to keep healthy. He really inspire us to eat healthy food and keep away from drugs and do exercise daily. He also called some boys on stage for pushups competition and it was really fun to watch them. 
+### National Cadet Corps
+#### Then our one of senior who is member of NCC explains us about what NCC is and how they work. He shares his experience to shot a gun and other adventures treks and also told that how NCC gives you chance to live army life. Then our host invited brigader P.S.Cheema who delivered a very motivational lecture to us 
+
