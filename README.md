@@ -27,5 +27,9 @@ Gursimran kaur ECE branch
 ### Fitness for Engineers
 #### Then our host invited Mr Manpreet Singh who delivered a lecture on fitness for engineers he explained how a good diet and exercise help us to keep healthy. He really inspire us to eat healthy food and keep away from drugs and do exercise daily. He also called some boys on stage for pushups competition and it was really fun to watch them. 
 ### National Cadet Corps(NCC) 
-#### Then our one of senior who is member of NCC explains us about what NCC is and how they work. He shares his experience to shot a gun and other adventures treks and also told that how NCC gives you chance to live army life. Then our host invited brigader P.S.Cheema who delivered a very motivational lecture to us and filled us with full of enthusiasm. He delivered a life long lesson through poetry. He gave important lesson for successful career that " Networking increase Networthing" He really filled us with full of enthusiasm and full of passion. 
+#### Then our one of senior who is member of NCC explains us about what NCC is and how they work. He shares his experience to shot a gun and other adventures treks and also told that how NCC gives you chance to live army life. Then our host invited brigader P.S.Cheema who delivered a very motivational lecture to us and filled us with full of enthusiasm. He delivered a life long lesson through poetry. He gave important lesson for successful career that " Networking increase Networthing" He really filled us with full of enthusiasm and full of passion. After that we attend lecture of physics . We got information about 'Motorsports' and with that day ends. 
+# Day 6
+### 7 August 2025
+#### At morning we have our physics lecture where mam give some basic information about Laser and also about practicals and after that we have lecture of maths where mam discussed about syllabus and about simple derivatives. 
+### Center for multi-faceated
 
