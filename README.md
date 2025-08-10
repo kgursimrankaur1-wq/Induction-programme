@@ -32,4 +32,9 @@ Gursimran kaur ECE branch
 ### 7 August 2025
 #### At morning we have our physics lecture where mam give some basic information about Laser and also about practicals and after that we have lecture of maths where mam discussed about syllabus and about simple derivatives. 
 ### Center for multi-faceated
-
+#### Then Dr. Lakhvir Singh Khana told us about centre for multi-faceated (CML). He gave us information about how cml works and how they research on different agendas and how they help student for organising unique functions. It was a wonderful lecture. 
+### National service scheme (NSS) 
+#### Then host invited Dr Jasvir singh grewal to introduce about NSS and also students of NSS recite shabad kirtan and it gives peace to mind. Then they also play game with us which gave a big lesson to us that it is not easy to make someone happy rather people became angry easily. It was really a good day. 
+# Day 7
+### 8 August 2025
+#### Finally the last day of induction program. At 11:00 am we reach to our classes for our P2P lecture where our seniors ask us about our interest and suggest us to join different communities according to our interest and share us some helpful tips for our studies. then we go to workshops according to our roll numbers and there are so many different workshop like foundry, fitting and machine etc. Our teacher gave us information about workshops and the job that we have to done in semester and then he asked us to visit workshop and explore new things. It was really a knowledgeable day. 
