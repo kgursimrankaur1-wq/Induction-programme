@@ -45,4 +45,4 @@ Gursimran kaur ECE branch
 #### Continuous Learning: The program highlights the life lessons and staying updated with new technological advancement. 
 #### Networking and Communication: This program tells the importance of networking as networking increase networking and also tells the importance of communication in both academic and professional field. 
 # Conclusion
-
+#### The GNDEC induction program was a comprehensive blend of technical education, holistic development, and personal development. It provided a solid foundation for the academic journey ahead and equipped us with the necessary tools and mindset to excel both in college and beyond.I am grateful for the opportunities to learn, grow, and connect with the vibrant community at GNDEC. This induction has set the stage for a fulfilling and enriching college experience, one that I am eager to embrace fully.
